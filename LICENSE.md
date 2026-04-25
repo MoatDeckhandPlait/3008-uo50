@@ -1,4 +1,4 @@
-
+Experience 3008 like never before with exclusive Script for 3008, the #1 Script. Includes teleport and auto-sell for unbeatable performance.
 
 
 
